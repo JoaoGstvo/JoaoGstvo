@@ -2,7 +2,7 @@
 
 •⋅⊰•∘«────«⊰⊱»────»•∘⊱⋅•
 
-Cursando Análise e Desenvolvimento de Sistemas (2º Semestre)
+Cursando Análise e Desenvolvimento de Sistemas (3º Semestre)
 
 •⋅⊰•∘«────«⊰⊱»────»•∘⊱⋅•
 
